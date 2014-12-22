@@ -35,868 +35,118 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The vanitie of the eye first beganne for the comfort of a gentlewoman bereaved of her sight, and sin
+
+1. The Contents of the severa••
+Chapters following.
+
 #####Body#####
 
-1. CAP. 1.
+1. THE VANITIE
+OF THE EYE.
 
-    _ Of Envie.
+    _ CAP. 1.
 
-    _ Of worshipping the sun and the starres.
+    _ CAP. 2.
 
-    _ Of teares the greatest token of sorrow.
+    _ CAP. 3.
 
-    _ The renewing of the sight and travaile
+    _ CAP. 4.
+
+    _ CAP. 5.
+
+    _ CAP. 6.
+
+    _ CAP. 7.
+
+    _ CAP. 8.
+
+    _ CAP. 9.
+
+    _ CAP. 10.
+
+    _ CAP. 11.
+
+    _ CAP. 13.
+
+    _ CAP. 14.
+
+    _ CAP. 15.
+
+    _ CAP. 16.
+
+    _ CAP. 17.
+
+    _ CAP. 18.
+
+    _ CAP. 19.
+
+    _ CAP. 20.
+
+    _ CAP. 21.
+
+    _ CAP. 22.
+
+    _ CAP. 23.
+
+    _ CAP. 24.
+
+    _ CAP▪ 25.
+
+    _ CAP. 26.
+
+    _ CAP. 27.
+
+    _ CAP. 28.
+
+    _ CAP. 29.
+
+    _ CAP. 30.
+
+    _ CAP. 31.
+
+BEing not willing to burdē
+the text with these ensuing
+collections, & the margin not
+able to recea
+    _ CAP. I.
+
+      * Of Envie.
+
+    _ CAP. 2.
+
+      * Of worshipping the sun and the starres.
+
+    _ CAP. 3.
+
+    _ CAP. 4.
+
+    _ CAP. 5.
+
+    _ CAP. 6.
+
+    _ CAP. 7.
+
+    _ CAP. 8.
+
+      * Of teares the greatest token of sorrow.
+
+    _ CAP. 9.
+
+    _ CAP. 11.
+
+      * The renewing of the sight and travaile
 both together.
 
-    _ Of the deepe impression which is wrought
+      * Of the deepe impression which is wrought
 vpon the minde by the obiects presented
 by the eie.
 
-    _ Of the blindnesse of the minde by the
+    _ CAP. 31.
+
+      * Of the blindnesse of the minde by the
 sway of passions.
 
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 2.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 3.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 4.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 5.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 6.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 7.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 8.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 9.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 10.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 11.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 13.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 14.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 15.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 16.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 17.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 18.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 19.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 20.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 21.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 22.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 23.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 24.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP▪ 25.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 26.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 27.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 28.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 29.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 30.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 31.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. I.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 2.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 3.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 4.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 5.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 6.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 7.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 8.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 9.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 11.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
-se inquit Blepharoni.
-
-1. CAP. 31.
-
-    _ Of Envie.
-
-    _ Of worshipping the sun and the starres.
-
-    _ Of teares the greatest token of sorrow.
-
-    _ The renewing of the sight and travaile
-both together.
-
-    _ Of the deepe impression which is wrought
-vpon the minde by the obiects presented
-by the eie.
-
-    _ Of the blindnesse of the minde by the
-sway of passions.
-
-    _ In Amphitruone Plauti Amphitruo i•.
+      * In Amphitruone Plauti Amphitruo i•.
 se inquit Blepharoni.
 
 **Types of content**
